@@ -1,4 +1,4 @@
-<a href="https://ibb.co/gM3X638d"><img src="https://i.ibb.co/gM3X638d/file-000000000f8c622f9eeec426cb828584.png" alt="file-000000000f8c622f9eeec426cb828584" border="0"></a>
+<img src="https://i.ibb.co/gM3X638d/file-000000000f8c622f9eeec426cb828584.png" alt="file-000000000f8c622f9eeec426cb828584" border="0">
 
 <h1 align="center">Hey there, I'm Mr Lucifer! <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="28"></h1>
 
